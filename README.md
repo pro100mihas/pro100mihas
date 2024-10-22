@@ -1,8 +1,6 @@
-HEKOOU !!!
-qweerqw n
-qweqwe fdsdf dfF SD FSF 
-dFSFSAFDSF ASFFSADFSA 
-ASDFSFSDFD ASDF ASDFS
-SADFASDFFDASDFASFAG A
-AFGFADGDFGDFGDSGDSFGDSFG
-sgadgasdfdafgfadgsd  gsdfg
+Привет это моя первая страница
+так
+что
+строго не 
+судите
+!"!!!!
